@@ -1,1 +1,1 @@
-hi aku wari
+hi aku syuwari
